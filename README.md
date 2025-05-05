@@ -1,2 +1,3 @@
 # multi-view-sitting-posture-dataset
-The dataset is being compiled and will be released soon.
+Please click the following link to download：
+ https://pan.baidu.com/s/1577RDm5dmdXtQqNUjwJusw?pwd=qm7x 
